@@ -22,7 +22,7 @@ The author spread the message that reaching your goal is difficult , by hard wor
 ---
 
 The article was written in Georgia style with a fount size 10.5.
-
+---
 As Sachin Tenduklar is an IDOL for millions of people across the world,many people are interested to know what Sachin is going to do after his retirement .Many people are curious to know about his next move in his life .
 ---
 
